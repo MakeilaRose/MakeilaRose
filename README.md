@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MakeilaRose
+- 👀 I’m interested in Photography
+- 🌱 I’m currently learning German
+- ⚡ Fun fact: i like hot cheetoa
